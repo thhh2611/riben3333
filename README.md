@@ -20,4 +20,4 @@
 
 数据全程加密处理，无广告、无追踪，支持隐私模式浏览，看片安心更自由。现在就点击任意入口，立即进入日本成人视频的高清纯净世界！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben3333 ）</span> 
